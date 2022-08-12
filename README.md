@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **kamlesh.kolkata13@gmail.com**
 
-- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1OKqoOB3F0gsvCbfXy6zi2Z_EQuIr6pKg/view)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/10j7TqWKwGhAnUgeYfWZjeKrvhF3r3nyQ/view?usp=sharing)
 
 - ⚡ Fun fact **I can code hehe**
 
